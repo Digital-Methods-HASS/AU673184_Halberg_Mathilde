@@ -1,5 +1,5 @@
 **Abortion in Denmark since 1973**
-¨
+
 Support-email : Trine : 202008125@post.au.dk Mathilde : 202008537@post.au.dk
 
 **About our project**
